@@ -6,7 +6,7 @@
 
 kjiiojioio123joifjios
 
-## Chapter 2c
+## Chapter 2
 
 ### sdfsefhtjjjj1122222
 
